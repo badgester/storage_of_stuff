@@ -2,7 +2,7 @@
 my storage
 
 # what even is this
-well, i cant explain myself
+well, i cant explain myself really.
 i post useful programs, stuff to share on discord, and other things on here
 
 # warning
